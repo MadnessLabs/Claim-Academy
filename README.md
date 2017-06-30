@@ -11,3 +11,4 @@ addicted to cocaine due to drinking Coca-cola,
 which was accomplished with the help of a St. Louis, Mo. based company,
  Mallinckrodt.
  Then the dragon came soaring in and burn down the entire village.
+ What village you say? It was the village of Mallinckrodt! They had a hidden village in the company grounds!
